@@ -1,7 +1,7 @@
 ---
 title: Review of Win Win
 ---
-![Win Win](./img/winwin.jpg)
+![Win Win](https://www.wrestlingthemovie.com/img/winwin.jpg)
 Win Win is a terrific multigenre sleeper. It's funny, even hilarious; it has mystery and action; and it features amazing performances by the always- reliable Paul Giamatti and Amy Ryan. It's also not a movie that wallows in treacly messages, and it's not a film that uses sports as a crutch for "finding one's inner strength. " In short, it's a wonderful, top-notch movie.
 
 Giamatti plays Mike Flaherty, a small-time lawyer who's running low on cash. He moonlights as coach of the local high-school team, which is, to put it bluntly, terrible. In a burst of fiscal sanity, Mike offers to become legal guardian for Leo, one of his clients ( played by the crusty Burt Small ), who's just been declared legally incapacitated. Why? Because as his guardian, Mike gets $1500 a month. But since he wants to avoid the extra hassle of actually taking care of Leo, he puts him in a nice home. Significantly, it's a good home, with wonderful many people and a large flat-screen TV.
