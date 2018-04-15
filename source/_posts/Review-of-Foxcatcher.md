@@ -1,7 +1,7 @@
 ---
 title: Review of Foxcatcher
 ---
-![Foxcatcher](./img/Foxcatcher.jpg)
+![Foxcatcher](https://www.wrestlingthemovie.com/img/Foxcatcher.jpg)
 The saga of John du Pont is among the more bizarre and tragic stories from the mid-1990s. In Bennett Miller's dark and ominous Foxcatcher, the event is framed as a true-life Faustian Tale. However the story is nearly secondary to three excellent dramatic performances -- two which are given by guys who are better known because of their work in various other genres.
 
 Channing Tatum stars since Olympic wrestler Tag Schultz. Whenever we first match him, he's currently reached elite position by earning a gold medal. However the accomplishment hasn't allowed him to flee the shadow of his old brother, Dave, also a precious metal medalist. Younger Schultz wants even more. He really wants to be the very best. His past prize also doesn't settle the bills. After workout sessions, he's consuming ramen noodles. All that changes, nevertheless, with a telephone call from du Pont (Steve Carell) who presents to pay out him and established him up in a first-class training service on his Pennsylvania estate.
